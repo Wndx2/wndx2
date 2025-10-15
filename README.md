@@ -7,3 +7,5 @@ Currently working on 'bobotype' because my school blocked monkeytype (honestly w
 You can check my alt `@sleepywndud` for my school projects and assignments! (Te-Puia will be locked until someone finishes their website)
 
 If you have anything for me, DM `wndx2` on Discord!
+
+phrase of the day: ni meiyou baba
