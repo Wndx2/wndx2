@@ -1,1 +1,1 @@
-[@sleepywndud](https://github.com/sleepywndud) => 학교 계정
+[@sleepywndud](https://github.com/sleepywndud) == 학교 계정
